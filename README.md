@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Smaaneh
+- 👩🏻‍💻 Software student 
+- 👀 Love to work! 
